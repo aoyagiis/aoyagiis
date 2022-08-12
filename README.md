@@ -3,6 +3,7 @@
 - agender demi-bigender
 - lithromantic demisexual + cinthean
 - akitoya enthusiast. /hj
+- LITERALLY. fudo akanes no. 1 fan
  
 - if i'm afk on pt (like usual,,,) feel free to whisp me something!
 - i also have a cbox but i check it less frequently than i should !? so feel free to whisp if you sent smth important
