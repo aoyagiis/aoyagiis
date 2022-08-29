@@ -5,6 +5,6 @@
 - akitoya enthusiast. /hj
  - 
 - if i'm afk on pt (like usual,,,) feel free to whisp me something!
-- i also have a cbox but i check it less frequently than i should !? so feel free to whisp if you sent smth important
+- i also have a cbox (...wip) but i check it less frequently than i should !? so feel free to whisp if you sent smth important
 - please read rentry !! (WIP) <3 ...should probably mention that i frequently update it with minor things so if you see anything new... yeah. im insane.
 - will eventually be semi ia (inactive) on/past august 15th.
