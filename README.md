@@ -1,7 +1,7 @@
 - esther or es !?
 - all prns + neos... he/him the most
-- unlabeled transmasculine
-- lithflux demisexual + cinthean
+- dollgender transmasculine
+- hostiamantic demisexual + cinthean
 - akitoya enthusiast. /hj
  - 
 - if i'm afk on pt (like usual,,,) feel free to whisp me something!
