@@ -1,9 +1,9 @@
-- esther or es !?
+- esther or runa !?
 - all prns + neos... he/him the most
 - dollgender transmasculine
-- hostiamantic demisexual + cinthean
-- akitoya enthusiast. /hj
- - 
+- cupioromantic demisexual + cinthean
+- stupid for you <3
+- 
 - if i'm afk on pt (like usual,,,) feel free to whisp me something!
 - i also have a cbox but i check it less frequently than i should !? so feel free to whisp if you sent smth important
 - please read rentry byi/dni !! <3
