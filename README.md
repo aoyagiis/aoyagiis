@@ -9,3 +9,4 @@
 - please read my rentry's byi/dni !! <3. if you want to skip my info, it's under "one"
 - i hide and block people freely for my own comfort!
 - also keep in mind that i kin to cope, and because i have a lack of self/identity, hence the no dbls.
+- i'm not gonna fight you over dumb shit tho so don't bother.
