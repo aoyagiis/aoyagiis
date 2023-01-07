@@ -1,5 +1,5 @@
 - esther or runa !?
-- all prns + neos... she/him the most
+- all prns + neos... she/him i use the most (but ask)
 - dollgender transmasculine
 - cupioromantic demisexual + cinthean
 - stupid for you <3
@@ -8,4 +8,4 @@
 - i also have a cbox/guestbook but i check those less frequently so feel free to whisp if you sent smth important (or just stop by to say hi!)
 - please read my rentry's byi/dni !! <3. if you want to skip my info, it's under "one"
 - i hide and block people freely for my own comfort!
-- also keep in mind that i kin to cope, and because i have a lack of self/identity.
+- also keep in mind that i kin to cope, and because i have a lack of self/identity, hence the no dbls.
