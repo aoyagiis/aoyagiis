@@ -1,6 +1,6 @@
 - viole or melt !?
 - ask for prns most of the time
-- catgender transmasculine ++
+- catgender transmasc ++
 - lithromantic demisexual + cinthean
 - 
 - if i'm afk on pt (like usual,) feel free to whisp me something if you needed to talk to me!
