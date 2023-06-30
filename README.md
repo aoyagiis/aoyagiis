@@ -1,11 +1,11 @@
-- viole or melt !?
-- ask for prns most of the time
-- catgender transmasc ++
-- lithromantic demisexual + cinthean
+- remi or melt !?
+- he/they but ask for prns if you want
+- catgender transmasc
+- aroflux demisexual + cinthean
 - 
 - if i'm afk on pt (like usual,) feel free to whisp me something if you needed to talk to me!
 - i also have a guestbook but i check those less frequently so feel free to whisp if you sent smth important (or just stop by to say hi!)
 - please read my rentry's byi/dni !! <3. if you want to skip my info, it's under "un"
 - i hide and block people freely for my own comfort!
-- also keep in mind that i kin to cope, and because i have a lack of self/identity, hence no dbls.
-- i'm not gonna fight you over dumb shit though so don't even bother.
+- i'd prefer no dbls but tbh idrc either way
+- i'm not gonna fight you over dumb shit though. i do not have the energy to do so
