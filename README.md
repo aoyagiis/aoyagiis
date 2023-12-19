@@ -1,4 +1,4 @@
-- ena / shugu / other names 🫐
+- ENA or LOKI 🫐
 - she / him prns! it depends
 - bigender && wlw/mlm
   
