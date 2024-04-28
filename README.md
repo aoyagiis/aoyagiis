@@ -10,4 +10,4 @@ MARCEL or LOKI ❣️
 
 -  DNI 🐦‍🔥
   
--  basic dni, scott pilgrim + hh/hb fans (i don't care i hide every one of you) , atl/palaye/patd/top enjoyers ... lot more but rlly if i dont f/w you ill just hide you w/o saying anything as to not cause drama sorry. also minato arisato irls (i normally dgaf abt doubles but i'm insane over him SORRY. fictives int. Not if ur an endo “system” or wtv go away LMAO.) + mspec lesbians. idk more in the rentry
+-  basic dni, scott pilgrim + hh/hb fans (i don't care i hide every one of you) , atl/palaye/patd/top enjoyers ... lot more but rlly if i dont f/w you ill just hide you w/o saying anything as to not cause drama sorry. also minato arisato irls (i normally dgaf abt doubles but i'm insane over him SORRY. fictives int. Not if ur an endo “system” or wtv go away LMAO.) + mspec lesbians. idk more in the rentry. if youre like under 15 dni ?
