@@ -1,4 +1,4 @@
-MARCEL or LOKI ❣️
+MARCEL or CROW ❣️
 - all pronouns (ask)
 - genderfluid & unlabeled
 - 19, journalism major
