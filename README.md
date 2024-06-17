@@ -8,7 +8,7 @@ MARCEL or CROW ❣️
   
  BYI 🍂
 
--  i'm afk a lot. feel free to shoot me a whisper if i don't respond! i tend to go ia on pt due to school (but for now/soon, work,) irl stuff, concerts, or due to my chronic fatigue (i'm diagnosed w/ a disability). i also tend to have social anxiety, sorry for my bad responses in advance!! 
+-  i'm afk a lot. feel free to shoot me a whisper if i don't respond! i tend to go ia on pt due to school (but for now/soon, work,) irl stuff, concerts, or due to my chronic fatigue (i'm diagnosed w/ a disability). i also tend to have social anxiety, sorry for my bad responses in advance!! i also have bpd, so please be patient with me (it normally doesn't affect others, but i deal with things irl so it adds onto it...!)
 
   DNI 🥊
   
