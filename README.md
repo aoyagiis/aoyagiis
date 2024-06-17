@@ -1,13 +1,15 @@
 MARCEL or CROW ❣️
+
 - all pronouns (ask)
-- genderfluid & unlabeled
+- unlabeled + sapphic/achillean
 - 19, journalism major
+- december 7 baby !!
 - eng/esp 🇲🇽
   
 -  BYI 🍂
 
--  i'm afk a lot. shoot me a whisper or put smth in my guestbook if you'd like! i also tend to be very silent as i get overwhelmed easily and i'm just a nervous wreck 90% of the time . i have undiagnosed (for now, working towards it) bpd that will most likely affect my mood sometimes, sorry in advance. may be ia on pt due to college! please ask before venting/ranting i am SO badly apathetic towards people 😭
+-  i'm afk a lot. feel free to shoot me a whisper if i don't respond! i tend to go ia on pt due to school (but for now/soon, work,) irl stuff, concerts, or due to my chronic fatigue (i'm diagnosed w/ a disability). i also tend to have social anxiety, sorry for my bad responses in advance!! 
 
--  DNI 🐦‍🔥
+-  DNI 🥊
   
--  basic dni, scott pilgrim + hh/hb fans (i don't care i hide every one of you) , atl/palaye/patd/top enjoyers ... lot more but rlly if i dont f/w you ill just hide you w/o saying anything as to not cause drama sorry. also minato arisato irls (i normally dgaf abt doubles but i'm insane over him SORRY. fictives int. Not if ur an endo “system” or wtv go away LMAO.) + mspec lesbians. idk more in the rentry. if youre like under 15 dni ?
+- basic dni, under 15, palaye/patd/atl/top fans (i cannot stress this enough), israel “supporters” / you're neutral, believe in endogenic systems, you like anyone problematic idfk (i don't care just don't be a freak.)
