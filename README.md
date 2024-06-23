@@ -1,4 +1,4 @@
-<p align="center"> <img src="https://github.com/aoyagiis/aoyagiis/assets/109156062/61d2babf-f066-4d1f-90b0-02316425746c" </p> 
+<p align="center"> <img src="https://github.com/aoyagiis/aoyagiis/assets/109156062/cf594a61-eaf7-4ef6-8a71-fc95c82f3235" </p> 
 
  <p align="center"> AMAYA 🎀 9teen <br> she ノ cute ノ idol !
 
