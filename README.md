@@ -1,15 +1,11 @@
-MARCEL or CROW ❣️
+<p align="center"> <img src="https://github.com/aoyagiis/aoyagiis/assets/109156062/61d2babf-f066-4d1f-90b0-02316425746c" </p> 
 
-- all pronouns (ask)
-- unlabeled + sapphic/achillean
-- 19, journalism major
-- december 7 baby !!
-- eng/esp 🇲🇽
-  
- BYI 🍂
+ <p align="center"> AMAYA 🎀 9teen <br> she ノ cute ノ idol !
 
--  i'm afk a lot. feel free to shoot me a whisper if i don't respond! i tend to go ia on pt due to school (but for now/soon, work,) irl stuff, concerts, or due to my chronic fatigue (i'm diagnosed w/ a disability). i also tend to have social anxiety, sorry for my bad responses in advance!! i also have bpd, so please be patient with me (it normally doesn't affect others, but i deal with things irl so it adds onto it...!)
+ <p align="center"> <img src="https://i.postimg.cc/cJ6cYnP4/divider-4-missing-creds.png" </p>
 
-  DNI 🥊
-  
-- basic dni, under 15, palaye/patd/atl/top fans (i cannot stress this enough), israel “supporters” / you're neutral, believe in endogenic systems, you like anyone problematic idfk (i don't care just don't be a freak.)
+<div align="center">
+
+rentry (wip) 🩵 [add songs!](https://open.spotify.com/playlist/2AJy7bSw1rNN8yrxH8u2qd?si=gcP4DXqkQyWdnpllSLbYyg&pt=e3b332fc00b57cbefd6f0af82b6a4bbb&pi=nncpFcsySDKvs)
+
+<p align="center"> <img src="https://i.postimg.cc/g0NfJ0G4/blinkie-2-from-watermelon-crd-co.gif">
