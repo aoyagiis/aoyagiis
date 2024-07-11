@@ -6,6 +6,6 @@
 
 <div align="center">
 
-rentry (wip) 🩵 [add songs!](https://open.spotify.com/playlist/2AJy7bSw1rNN8yrxH8u2qd?si=N3DyionJSvq2oi8Y9xVwfw&pt=0f54fada8b36b014f26024eb123ddbfd&pi=Qa6Nz4fTQ0G7w)
+rentry (wip) 🩵 [add songs!](https://open.spotify.com/playlist/2AJy7bSw1rNN8yrxH8u2qd?si=0AzZdTJsSOG_NjFk_9fQSw&pt=a6a5ccd94d816d78db772caa5917700d&pi=aEeEBpphTKa1t)
 
 <p align="center"> <img src="https://i.postimg.cc/g0NfJ0G4/blinkie-2-from-watermelon-crd-co.gif">
