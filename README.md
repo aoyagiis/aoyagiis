@@ -1,6 +1,6 @@
 <p align="center"> <img src="https://github.com/aoyagiis/aoyagiis/assets/109156062/38bd8e47-1c2f-407c-a130-2ebaef44dd06" </p> 
 
- <p align="center"> AMAYA 🎀 9teen <br> they ノ cute ノ idol !
+ <p align="center"> AMAYA 🎀 meow <br> they ノ cute ノ idol !
 
  <p align="center"> <img src="https://i.postimg.cc/cJ6cYnP4/divider-4-missing-creds.png" </p>
 
