@@ -2,7 +2,7 @@
 
  <p align="center"> TOYA 💤 MARCEL <br> they ノ moons !
 
- <p align="center"> <img src="https://i.postimg.cc/cJ6cYnP4/divider-4-missing-creds.png" </p>
+ <p align="center"> <img src="https://postimg.cc/vc4CwCSk" </p>
 
 <div align="center">
 
