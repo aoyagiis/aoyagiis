@@ -1,4 +1,4 @@
-<p align="center"> <img src="[https://github.com/aoyagiis/aoyagiis/assets/109156062/38bd8e47-1c2f-407c-a130-2ebaef44dd06](https://postimg.cc/ygPCW9FG)" </p> 
+<p align="center"> <img src="(https://postimg.cc/ygPCW9FG)" </p> 
 
  <p align="center"> AMAYA 🎀 meow <br> they ノ cute ノ idol !
 
