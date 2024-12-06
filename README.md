@@ -2,7 +2,7 @@
 
  <p align="center"> TOYA 💤 MARCEL <br> they ノ moons !
 
- <p align="center"> <img src="https://i.postimg.cc/vc4CwCSk/femtoya.png" width="350" </p>
+ <p align="center"> <img src="https://i.postimg.cc/vc4CwCSk/femtoya.png" width="400" </p>
 
  <div align="center">
 
