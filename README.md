@@ -1,4 +1,4 @@
-<p align="center"> <img src="https://i.postimg.cc/SR0STfjm/mako.png" width="48" </p> 
+<p align="center"> <img src="https://i.postimg.cc/SR0STfjm/mako.png" width="300" </p> 
 
  <p align="center"> AMAYA 🎀 meow <br> they ノ cute ノ idol !
 
