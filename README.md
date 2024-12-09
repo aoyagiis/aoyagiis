@@ -8,4 +8,4 @@
 
  <div align="center">
 
-deco tree + sign strawpage
+deco tree + send smth on my strawpage
