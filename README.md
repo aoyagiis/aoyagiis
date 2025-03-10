@@ -1,11 +1,11 @@
-<p align="center"> <img src="https://komarev.com/ghpvc/?username=aoyagiis&label=☆彡&style=plastic&color=204cc4" </p>
+<p align="center"> <img src="https://komarev.com/ghpvc/?username=aoyagiis&label=୨୧&style=plastic&color=FFC0CB" </p>
 
-<p align="center"> <img src="https://i.postimg.cc/SR0STfjm/mako.png" width="320" </p> 
+<p align="center"> <img src="https://i.postimg.cc/x124g52g/march.png" width="320" </p> 
 
- <p align="center"> LUCAS 💤 ALEXIS <br> none ノ moons !
+ <p align="center"> AMIA 🏳️‍⚧️ MARCH <br> none ノ dolls !
 
- <p align="center"> <img src="https://i.postimg.cc/15BSwQ0m/femtoya.png" width="400" </p>
+ <p align="center"> <img src="https://i.postimg.cc/Wb6npPB6/mizuk.png" width="400" </p>
 
  <div align="center">
 
-ponme algo a mi strawpage porfis <33
+03/02/2025 <3
