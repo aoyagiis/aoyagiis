@@ -4,7 +4,7 @@
 
 <p align="center"> <img src="https://i.postimg.cc/x124g52g/march.png" width="320" </p> 
 
- <p align="center"> EMMY 🏳️‍⚧️ MARCH <br> none ノ dolls !
+ <p align="center"> EMMY 🏳️‍⚧️ MARCH <br> none ノ [dolls](https://pronouns.cc/@shiguang) !
 
  <p align="center"> <img src="https://i.postimg.cc/Wb6npPB6/mizuk.png" width="400" </p>
 
