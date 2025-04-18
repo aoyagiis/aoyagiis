@@ -6,8 +6,8 @@
 
  <p align="center"> CAS 🔮 HERTA <br> none ノ dolls !
 
- <p align="center"> <img src="https://i.postimg.cc/Wb6npPB6/mizuk.png" width="400" </p>
+ <p align="center"> <img src="https://i.postimg.cc/1zqDw01L/mafy.png" width="450" </p>
 
  <div align="center">
 
-03/02/2025 💜
+03/02/2025 💜 [divider cred](https://www.tumblr.com/revivalrequiem/739690226305417216/koi-fish-themed-koi-fish-set-free-to-use?source=share)
