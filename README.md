@@ -4,7 +4,7 @@
 
 <p align="center"> <img src="https://i.postimg.cc/BvyVpBys/yukinya.png" width="320" </p> 
 
- <p align="center"> CAS 🔮 VIVI <br> none ノ faer !
+ <p align="center"> CAS 🔮 LUNA <br> none ノ faer !
 
  <p align="center"> <img src="https://i.postimg.cc/1zqDw01L/mafy.png" width="450" </p>
 
