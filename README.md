@@ -4,7 +4,7 @@
 
 <p align="center"> <img src="https://i.postimg.cc/BvyVpBys/yukinya.png" width="320" </p> 
 
- <p align="center"> CAS 🌌 HERTA <br> none ノ dolls !
+ <p align="center"> CAS 🔮 HERTA <br> none ノ dolls !
 
  <p align="center"> <img src="https://i.postimg.cc/Wb6npPB6/mizuk.png" width="400" </p>
 
