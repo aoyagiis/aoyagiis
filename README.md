@@ -11,3 +11,5 @@
  <div align="center">
 
 03/02/2025 💜 [divider cred](https://www.tumblr.com/revivalrequiem/739690226305417216/koi-fish-themed-koi-fish-set-free-to-use?source=share)
+
+P.S. I KNOW GIMMICKS ARE BACK I JUST HAVEN'T HAD THE MOTIVATION TO UPDATE MY SP SO SORRY
