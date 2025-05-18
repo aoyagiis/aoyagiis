@@ -1,4 +1,4 @@
-<p align="center"> <img src="https://komarev.com/ghpvc/?username=aoyagiis&label=ips_taken_✶&style=plastic&color=yellow" </p>
+<p align="center"> <img src="https://komarev.com/ghpvc/?username=aoyagiis&label=ips_taken_✮&style=plastic&color=yellow" </p>
 
 [![My Last.fm](https://lastfm-recently-played.vercel.app/api?user=meltdwn&count=1&show_user=header&header_size=normal_stats_only&loved=true&loved_style=2&width=1000)](https://www.last.fm/user/meltdwn)
 
@@ -10,4 +10,4 @@
 
  <div align="center">
 
-03/02/2025 💛 [divider cred](https://www.tumblr.com/revivalrequiem/739690226305417216/koi-fish-themed-koi-fish-set-free-to-use?source=share)
+03/02/2025 💛 [divider cred](https://www.tumblr.com/imjustchillinghere/736339331168501760/bubbly-outlined-star-music-themed-banner-masks?source=share)
