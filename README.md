@@ -4,12 +4,10 @@
 
 <p align="center"> <img src="https://i.postimg.cc/BvyVpBys/yukinya.png" width="320" </p> 
 
- <p align="center"> CAS 🔮 LUNA <br> none ノ faer !
+ <p align="center"> VERA ✨ SHUGU <br> none ノ virus !
 
  <p align="center"> <img src="https://i.postimg.cc/1zqDw01L/mafy.png" width="450" </p>
 
  <div align="center">
 
-03/02/2025 💜 [divider cred](https://www.tumblr.com/revivalrequiem/739690226305417216/koi-fish-themed-koi-fish-set-free-to-use?source=share)
-
-P.S. I KNOW GIMMICKS ARE BACK I JUST HAVEN'T HAD THE MOTIVATION TO UPDATE MY SP SO SORRY
+03/02/2025 💛 [divider cred](https://www.tumblr.com/revivalrequiem/739690226305417216/koi-fish-themed-koi-fish-set-free-to-use?source=share)
