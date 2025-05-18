@@ -1,4 +1,4 @@
-<p align="center"> <img src="https://komarev.com/ghpvc/?username=aoyagiis&label=ips_taken_✶&style=plastic&color=b07eff" </p>
+<p align="center"> <img src="https://komarev.com/ghpvc/?username=aoyagiis&label=ips_taken_✶&style=plastic&color=yellow" </p>
 
 [![My Last.fm](https://lastfm-recently-played.vercel.app/api?user=meltdwn&count=1&show_user=header&header_size=normal_stats_only&loved=true&loved_style=2&width=1000)](https://www.last.fm/user/meltdwn)
 
