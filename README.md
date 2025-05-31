@@ -4,7 +4,7 @@
 
 <p align="center"> <img src="https://i.postimg.cc/D0mKKCr0/beer.png" width="320" </p> 
 
- <p align="center"> VERA 🎐 KANE <br> none ノ prince !
+ <p align="center"> VERA 🎐 KANE <br> none ノ prin !
 
  <p align="center"> <img src="https://i.postimg.cc/02qLn23r/baby-baby-baby-ohhhhh.png" width="450" </p>
 
