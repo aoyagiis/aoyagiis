@@ -4,7 +4,7 @@
 
 <p align="center"> <img src="https://i.postimg.cc/J0H4PH90/kzh.png" width="320" </p> 
 
- <p align="center"> VERA 🍷 ALLEN <br> none ノ vamps !
+ <p align="center"> VERA 🍷 ALLEN <br> none ノ vamps
 
  <p align="center"> <img src="https://i.postimg.cc/9XsGVdXx/sakamina.png" width="450" </p>
 
