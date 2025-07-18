@@ -4,7 +4,7 @@
 
 <p align="center"> <img src="https://i.postimg.cc/3W5GXzd1/yj.png" width="320" </p> 
 
- <p align="center"> VERA ❄️ EOLYNE <br> none ノ he
+ <p align="center"> VERA ❄️ EOLYNE <br> none ノ hymn
 
  <p align="center"> <img src="https://i.postimg.cc/s2w5knNf/eug.png" width="450" </p>
 
