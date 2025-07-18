@@ -10,4 +10,4 @@
 
  <div align="center">
 
-3.2.25 🩵 [divider cred](https://www.tumblr.com/selysie/771364890058309632/%EA%A3%96-%E3%85%A4banner-masks-again-%F0%93%88%92?source=share)
+3.2.25 🩵 [divider cred](https://www.tumblr.com/d1rlin/746068814443249664/icon-banner-masks-repostint-with-the-post-if?source=share)
